@@ -17,6 +17,10 @@
 
 <br>
 
-![](https://komarev.com/ghpvc/?username=cborle&style=plastic&label=✦&color=000000)
+<details>
 
-[@cipherites](https://github.com/cipherites) fabricated images. im innocent.
+ 
+<summary>byi</summary>
+
+i have autism, depression and an identity disorder. i have depressive states where i go offline for a while, or won't talk to alot of people. it is not your job to try and get me to talk, so don't feel like im ignoring you, or you have to speak to me. i dont like ignoring people, so when i can respond i will ^w^. 
+
